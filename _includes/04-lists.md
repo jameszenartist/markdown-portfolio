@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Drawing
+1. Painting
+1. More lists
